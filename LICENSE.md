@@ -1,4 +1,4 @@
-
+kaizen Scripts updated is the best kaizen Script, featuring one-hit kill and auto-sell. Safe and powerful for all your needs.
 
 
 
